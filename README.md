@@ -1,4 +1,4 @@
-# Digital Analytics for Enhancing E-Commerce Business Performance
+# Analyzing Retail Business Strategies and other Dynamics
 
 ---
 
